@@ -21,3 +21,5 @@ In a large bowl, mix the ground beef, egg, bread crumbs, evaporated milk, Worces
 Lightly oil the grill grate. Grill patties 5 minutes per side, or until well done.
 
 Layer slices of cheese on top of hamburger on a sandwich, and add hamburger with tomato, salad to your taste.
+
+yummie
